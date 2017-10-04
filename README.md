@@ -1,2 +1,4 @@
 # Supernatural
-Just another supernatural fan
+
+I love Supernatural.
+Jared, Jensen and Misha are the best.
